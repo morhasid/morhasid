@@ -1,6 +1,6 @@
 ### Hi there, I'm Mor 👋
 
-## 4th year Software Engineering Outstanding Student!
+## Automation Engineer!
 - 🌱 I’m currently learning everything 🤣
 
 ### Connect with me:
