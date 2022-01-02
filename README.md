@@ -1,6 +1,6 @@
 ### Hi there, I'm Mor 👋
 
-## Automation Engineer!
+## Software Engineer!
 - 🌱 I’m currently learning everything 🤣
 
 ### Connect with me:
